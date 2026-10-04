@@ -113,7 +113,7 @@ layoffs and rapid restructuralization of critical areas of these process-and-pro
 people perceived such turmoil and injustice occurring. **Some processes drag out, others move in quick to establish 
 a new equivalent.** 
 
-Despite how much idiocy has come about from the release of commercial A.I.s, **their rapid rollouts along with the cuts 
+Despite how much idiocy has come about from the release of commercial A.I.s, **their rapid rollout along with the cuts 
 to the labor force expendable because of it was impressive**, if one were to be honest in their accounts. That would 
 have never occurred under the process-and-procedures frameworks constructed primarily by the Democrats. Those frameworks 
 became very strained. And I think it was because the financials were not adding up and there were still a lot of 
