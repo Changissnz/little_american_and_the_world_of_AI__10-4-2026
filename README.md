@@ -54,8 +54,8 @@ amongst peers of different backgrounds. Since then, I have never officially camp
 Party. The incentives for me were low and I was not with those university social circles that helped people get 
 into politics. The internet was the place where different views and knowledge could come together, through 
 search engines such as Yahoo and Google. Google still reigns, but it's looking mighty different from the barebones 
-search engine it used to be. In my belief back then, And the Democratic Party were the main sponsors of the 
-Internet. That belief, as it turned out, only sought to firmly place me in the hole of half-crazy academia so that 
+search engine it used to be. In my belief back then, the Democratic Party was the main sponsor of the Internet. 
+That belief, as it turned out, only sought to firmly place me in the hole of half-crazy academia so that 
 when I exited, there appeared to be no jobs that would allow me to independently support myself. The freedoms 
 that were allegedly fought for by some political factions granted me **the freedom to be a stray dog** during my 
 twenties. 
