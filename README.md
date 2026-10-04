@@ -30,9 +30,9 @@ That article, I was really holding in my s* for some number of years now. So tha
 came out the way it did. When a lot of the U.S. technology sector was not looking good for supporting 
 me, I also stumbled across media on the idea of "two economies" in the United States. 
 
-- ![America’s two economies remain far apart](https://www.brookings.edu/articles/americas-two-economies-remain-far-apart/)
-- ![America has two economies—and they’re diverging fast](https://www.brookings.edu/articles/america-has-two-economies-and-theyre-diverging-fast/)
-- ![The Great Divide: Understanding America’s Two Economies](https://peaceofmindeconomics.com/2024/10/18/the-great-divide-understanding-americas-two-economies/)
+- [America’s two economies remain far apart](https://www.brookings.edu/articles/americas-two-economies-remain-far-apart/)
+- [America has two economies—and they’re diverging fast](https://www.brookings.edu/articles/america-has-two-economies-and-theyre-diverging-fast/)
+- [The Great Divide: Understanding America’s Two Economies](https://peaceofmindeconomics.com/2024/10/18/the-great-divide-understanding-americas-two-economies/)
 
 The Brookings articles emphasized the two-party system. At this point in my life, the Brookings articles 
 read Aristocracy, Aristocracy, Class, Race, and Inequality to me. Surprise, surprise, right? 
