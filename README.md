@@ -91,7 +91,7 @@ It goes something like this,
 **Disappointing Democrat, meet Renegade Regressive Republican. Renegade Regressive Republican, meet Disappointing 
 Democrat. Marry each other, stay married, and die together.** And leave me out of your troubles. 
 
-#### As it turns out, with these A.I.-induced changes to the way civilization works, there is no real process. 
+### As it turns out, with these A.I.-induced changes to the way civilization works, there is no real process. 
 
 In the year 2022, I started noticing the significant problems the Democrats faced. The Democratic Party to me was 
 supposed to be the process-and-procedure party, so as to allow for common or disadvantaged peoples opportunities, 
@@ -120,10 +120,10 @@ became very strained. And I think it was because the financials were not adding 
 class expectations for people, hence why I feel as though some people in places high and low felt threatened or insulted 
 by the potential of some distant peoples to come together. 
 
-**Corporations have no default political ideology. They incorporate things and make accommodations for their clients of 
-persons and/or states.** This is a big principle. With these mass changes from A.I., I know the principle will continue 
-showing its face again in most corners of the world. Some people, me included, forget sometimes that just because Corporation 
-X has decided to fight for some list of rights and privileges that that would be absolute guarantee, when time and time again 
-demonstrates the impermanence of efforts for things meant to break up. Corporations do good, but they also show the 
-sadness of humanity's attempts to order this world through concentration of talents for process-and-procedures, amongst 
-other matters such as division through wealth. 
+### Corporations have no default political ideology. They incorporate things and make accommodations for their clients of persons and/or states. 
+
+This is a big principle. With these mass changes from A.I., I know the principle will continue showing its face again in most 
+corners of the world. Some people, me included, forget sometimes that just because Corporation X has decided to fight for 
+some list of rights and privileges that that would be absolute guarantee, when time and time again demonstrates the impermanence 
+of efforts for things meant to break up. Corporations do good, but they also show the sadness of humanity's attempts to order 
+this world through concentration of talents for process-and-procedures, amongst other matters such as division through wealth. 
