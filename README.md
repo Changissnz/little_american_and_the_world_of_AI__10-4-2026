@@ -105,7 +105,7 @@ are making millions...millions with this A.I. thing, while others are doing the 
 whole entire galaxy, while my world continues to be small, contained...**just like one American containment strategy 
 against China, which indirectly meant to support Chinese dissent, Moslems of every lineage, et cetera.**
 
-For how some government people got treated during these years of de-emphasizing the process-and-procedures framework, 
+For how some government people got treated during these years of de-emphasis on the process-and-procedures framework, 
 they deserve a lot of pity and empathy showered on them. They truly do. It's only right. The big message was **"the 
 structure no longer works, so we need to look to STRONG leaders to guide us on everything from this point on."** 
 It's not entirely insane to believe this, despite how far the benefits of doing so really goes. So there were mass 
