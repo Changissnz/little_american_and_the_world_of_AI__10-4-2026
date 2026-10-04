@@ -4,7 +4,7 @@
 Some personal views on American politics and prestige during the changing times of A.I. 
 ---------------------------------------------------------------------------------------
 
-#### Starting Note
+### Starting Note
 Due to the last couple years of the A.I. rage and my professional aimlessness, and I use that 
 term "professional" in that way of officious work, I have dedicated quite a few writings on the 
 topic of A.I., the helpless idiocy around it, socioeconomic changes, and more. I felt compelled 
@@ -37,7 +37,7 @@ me, I also stumbled across media on the idea of "two economies" in the United St
 The Brookings articles emphasized the two-party system. At this point in my life, the Brookings articles 
 read Aristocracy, Aristocracy, Class, Race, and Inequality to me. Surprise, surprise, right? 
 
-#### There's never been a more perfect time since Bill Clinton's presidency to be a Chinese traitor. 
+### There's never been a more perfect time since Bill Clinton's presidency to be a Chinese traitor. 
 
 I just went ahead and stated it like how it is. First and foremost, the idea of loyalties is deceptive on 
 some very unsound decision-making in commercial settings. Coverage of war and politics frequently enjoys 
