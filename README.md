@@ -66,7 +66,7 @@ major potential health problems for vulnerable people.
 
 So what the U.S. is doing now is fascinating and not really publicly available for knowledge, in these trade 
 rearrangements where the Democratic Party cannot effectively favor Mexican, Arab, and Chinese trade as much as 
-its "golden" years, the most recent ones being in 2010's. That certainly has affected the way the party was 
+during its "golden" years, the most recent ones being in 2010's. That certainly has affected the way the party was 
 able to deliver on its welfare and subsidies, and especially of labor. 
 
 The Democratic Party, under its more globalist corners, is completely out of its depth. I mean, if the best 
