@@ -124,6 +124,6 @@ by the potential of some distant peoples to come together.
 
 This is a big principle. With these mass changes from A.I., I know the principle will continue showing its face again in most 
 corners of the world. Some people, me included, forget sometimes that just because Corporation X has decided to fight for 
-some list of rights and privileges that that would be absolute guarantee, when time and time again demonstrates the impermanence 
+some list of rights and privileges that that would be absolute guarantee, when time and time again demonstrate the impermanence 
 of efforts for things meant to break up. Corporations do good, but they also show the sadness of humanity's attempts to order 
 this world through concentration of talents for process-and-procedures, amongst other matters such as division through wealth. 
