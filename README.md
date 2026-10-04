@@ -39,13 +39,13 @@ read Aristocracy, Aristocracy, Class, Race, and Inequality to me. Surprise, surp
 
 ### There's never been a more perfect time since Bill Clinton's presidency to be a Chinese traitor. 
 
-I just went ahead and stated it like how it is. First and foremost, the idea of loyalties is deceptive on 
-some very unsound decision-making in commercial settings. Coverage of war and politics frequently enjoys 
-quoting and filming the "Heroes of the Story", the "Empathetic Egalitarian", and the "Dedicated Diplomat". 
-Behind this impeccable accounting through reputation, the commercial world is one run by people that only wish 
-to force order, for trade their way that must cause disorder in other ways, and to deny their role in 
-disorder. Yes, it's quite cliche and simplistic, not very specific of me to describe the commercial world 
-in this way. 
+I just went ahead and stated it like how it is. First and foremost, the idea of loyalties is deceptive 
+for omitting the existence of some very unsound decision-making in commercial settings. Coverage of war 
+and politics frequently enjoys quoting and filming the "Heroes of the Story", the "Empathetic Egalitarian", 
+and the "Dedicated Diplomat". Behind this impeccable accounting through reputation, the commercial world is 
+one run by people that only wish to force order, for trade their way that must cause disorder in other ways, 
+and to deny their role in disorder. Yes, it's quite cliche and simplistic, not very specific of me to 
+describe the commercial world in this way. 
 
 That's why the Democratic Party's going to be out of its depth for a long while, even if the 2026 midterms 
 go well for them. **It's been looking more Carthaginian to me.** The party was helped in the previous decades 
