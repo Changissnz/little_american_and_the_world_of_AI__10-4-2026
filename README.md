@@ -98,7 +98,7 @@ supposed to be the process-and-procedure party, so as to allow for common or dis
 compensating for the heavily aristocratic tones of the Republican Party. Those processes and procedures under Obama 
 basically placed me in the "adult kid" zone during my college years. I was learning things but apparently not building 
 things for a career... because of the A.I. thing going on now (yeah, that's how marketing likes to spin the circumstances 
-of people such as me out to be). The world that was cut out for me was like the Japanese Lost Decade, Mister Childless and 
+of people such as me out to be). The world that was cut out for me was like the Japanese Lost Decade, Mister Childless & 
 Friendless. A suspected future Chinese Hero kind of person. It's cool. It's all good. But I can't possibly get with the 
 programs of some of my peers. Process-and-procedure caused differences to develop. Some people my age have kids, some 
 are making millions...millions with this A.I. thing, while others are doing the most groundbreaking research in the 
