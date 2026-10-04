@@ -86,7 +86,7 @@ It goes something like this,
 >   
 > Typical Wealthy American Capitalist: "My favorite Asian Tiger economy used to be Singapore, but now I am rooting
 > for the Philippines and Vietnam, in hopes that they fight it out. Winner gets to be the next powerful Asian Tiger
-> economy. 
+> economy." 
 
 **Disappointing Democrat, meet Renegade Regressive Republican. Renegade Regressive Republican, meet Disappointing 
 Democrat. Marry each other, stay married, and die together.** And leave me out of your troubles. 
