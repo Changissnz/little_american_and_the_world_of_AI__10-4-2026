@@ -61,7 +61,7 @@ that were allegedly fought for by some political factions granted me **the freed
 twenties. 
 
 The Chinese and American economies are still significantly coupled to each other. There was discussion about the 
-"decoupling" that needed to occur since the new geopolitical strains, codenamed Covid-19 that also served as a 
+"decoupling" that needed to occur since the new geopolitical strains, codenamed Covid-19 that also served as 
 major potential health problems for vulnerable people. 
 
 So what the U.S. is doing now is fascinating and not really publicly available for knowledge, in these trade 
